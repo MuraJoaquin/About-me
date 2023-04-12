@@ -5,4 +5,4 @@ Lo más destacado de mi tiempo en Henry fue el proyecto de Mix2Pizza, un E-Comme
 Actualmente, estoy trabajando en mi portfolio y desarrollando nuevos proyectos personales y grupales mientras sigo aprendiendo nuevas tecnologías.
 
 Puedes contactarme:
-📧 Mail: joaco_mura@hotmail.com
+📧 Mail: joaco_mura@hotmail.com  🔗 Linkedin: https://www.linkedin.com/in/joaqu%C3%ADn-mura-0621b9271/
